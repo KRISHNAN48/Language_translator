@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @NithishNithi(KRISHNAN M)
+- 👋 Hi, I’m @KRISHNAN48(KRISHNAN M)
 - 👀 I’m interested in ...Learning new about AI
 - 🌱 I’m currently learning ...B-tech IT
 - 💞️ I’m looking to collaborate on ...AI Projects
